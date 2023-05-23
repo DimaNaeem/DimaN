@@ -1,4 +1,4 @@
-# DimaN
+# Dima Naeem Mirza
 
 🧕 Hi, I am Dima Naeem.
 
